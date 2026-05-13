@@ -1,4 +1,4 @@
-# 
+# Enhance CorelDRAW for macOS with advanced CorelDRAW for macOS Template | UI themes + perspective warp, the #1 template. Includes UI themes and perspective warp for a smoother and
 
 
 
